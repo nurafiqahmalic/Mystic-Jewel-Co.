@@ -25,7 +25,6 @@ Explore our wide range of products, including necklaces, earrings, bracelets, an
 Have a question or need assistance? Feel free to reach out to us:
 
 - **Email:** contact@mysticjewelco.com
-- **Phone:** +1 (123) 456-7890
 
 We value your feedback and are here to help with any inquiries you may have.
 
